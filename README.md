@@ -1,4 +1,4 @@
-### Hi, I'm a Francis, Omar CB, Technical Software Development Professional👋
+### Hi, I'm a Francis, Omar CB, Software Development Professional👋
 
 <div align="center">
   <a href="https://github.com/0mar2090">
